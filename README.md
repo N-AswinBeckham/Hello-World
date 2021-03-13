@@ -1,2 +1,6 @@
 # Hello-World
-learnig github/ nithing important
+learnig github/ nothing important
+i am aswin
+iitm
+m
+:)
